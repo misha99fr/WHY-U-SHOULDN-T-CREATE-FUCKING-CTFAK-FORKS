@@ -1,1 +1,1 @@
-Kosta is retard
+Hello, there guide
